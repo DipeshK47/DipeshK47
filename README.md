@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **itsdipeshk2003@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1rFauBzPOYElrEKXJT1WUNpX5BVVq8czW/view?usp=sharing](https://drive.google.com/file/d/1rFauBzPOYElrEKXJT1WUNpX5BVVq8czW/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/15H5GUXiNFNZSigGZbrbpapzgXlNkzpFd/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
